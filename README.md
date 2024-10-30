@@ -6,7 +6,7 @@ Meu nome is Maria Eduarda Tessari mais conhecida como Tezzari
 - Estudante do Alura
 - English student
 - I love a Maju🌸❤️
--@tessari.madu
+- @tessari.madu
 
 
 
