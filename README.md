@@ -7,4 +7,4 @@ Meu nome is Maria Eduarda Tessari mais conhecida como Tezzari
 - English student
 - I love a Maju🌸❤️
 
-  ![GIF](https://github.com/user-attachments/assets/3d9b24cb-1037-462f-b85a-5cf3d3887395)
+  ![](https://media1.tenor.com/m/zizaXs99wHcAAAAC/alvin-and-the-chipmunks-alvin.gif)
